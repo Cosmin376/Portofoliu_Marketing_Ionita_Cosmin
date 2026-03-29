@@ -50,6 +50,6 @@ Aici veți găsi fișierele încărcate în acest repository, acoperind diverse 
 Sunt mereu deschis la noi provocări și oportunități în domeniul marketingului! Putem discuta mai multe aici:
 
 * **LinkedIn:** www.linkedin.com/in/cosminionita22
-* **Email:** [Adaugă aici adresa ta de email]
+* **Email:** cosminionita12@gmail.com
 
 *Vă mulțumesc pentru timpul acordat explorării portofoliului meu!*
